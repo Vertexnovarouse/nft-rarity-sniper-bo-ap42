@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with advanced NFT Scanner for nft rarity sniper bot | auto-sell & slippage-control, the #1 nft rarity sniper bot. Includes auto-sell and slippage-control
 
 
 
